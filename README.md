@@ -1,4 +1,5 @@
 # TELEGRAMAUTOREPLY
+![](https://texautoreply.net/wp-content/uploads/2022/05/logo3.png)
 TELEGRAM AUTO REPLY Автоответчик Telegram Август 2023
 ![](https://skr.sh/i/020823/CTwaOVAh.jpg)
 ОСНОВНЫЕ ХАРАКТЕРИСТИКИ
@@ -33,4 +34,27 @@ TELEGRAM AUTO REPLY Автоответчик Telegram Август 2023
 
 купить автоответчик пишите в Telegram https://t.me/fradddyrad
 -
+TexAutoReply Автоответчик Telegram купить https://DobroFile.ru/?s=565377581
+-
+видео урок как настроить https://cloud.mail.ru/public/MNEh/QY9H4hLiy
+-
+Демо версия программы https://cloud.mail.ru/public/iTK1/fpX3EjgDZ
+-
+![](https://texautoreply.net/wp-content/uploads/2022/05/logo3.png)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
